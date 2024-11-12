@@ -28,8 +28,8 @@
 
 <h3 align="left">Connect with me:</h3>
 
-- sundaycampoto@gmail.com
+- sundaylorrainecampoto@gmail.com
   
-- +63 9260711214
+- +63 945593168
   
 
